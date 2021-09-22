@@ -1,1 +1,0 @@
-# lecture-hw-readme
